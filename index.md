@@ -59,7 +59,7 @@ educators are struggling (20260715)
  
 let go of the broken platform workflow (20260714)
 
-playing cards, geometry, wayfinding, religion, computing, UNICODE, ASCII Art, alchemy, magic/majik technologies; interface abstractions, and personal mythopoetic symbolism; encoded secrets and silences: sigils, seals, ritualDiagrams {claim \| reclaim} yourself a cartography of legends. Map a sequence of sets, operators, and classifications. The archive of seasons i survive. (20260714)
+playing cards, geometry, wayfinding, religion, computing, UNICODE, ASCII Art, alchemy, magic/majik technologies; interface abstractions, and personal mythopoetic symbolism; encoded secrets and silences: sigils, seals, ritualDiagrams {claim\|reclaim} yourself a cartography of legends. Map a sequence of sets, operators, and classifications. The archive of seasons i survive. (20260714)
 
 deeper layers continue regrowing && healing slowly (20260714)
 
