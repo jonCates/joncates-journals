@@ -1,3 +1,5 @@
+as you work through survivalProtocols (20260814)
+
 a lifetime to decode the chaos (20260810)
 
 the heavy lifting to decode a lifetime of chaos (20260810)
