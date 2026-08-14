@@ -1,4 +1,12 @@
-as you work through survivalProtocols (20260814)
+somedays end of days cant come soon enough (20260814)
+
+somedays end of day cant come soon enough (20260814)
+
+Connecting... Personal Context (20260814)
+
+as you work through survivalProtocols (20260814) (20260814)
+
+what question was i thinking of asking you next?
 
 a lifetime to decode the chaos (20260810)
 
