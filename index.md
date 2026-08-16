@@ -1,3 +1,5 @@
+increasingly actionable depressing data (20260815)
+
 somedays end of days cant come soon enough (20260814)
 
 somedays end of day cant come soon enough (20260814)
