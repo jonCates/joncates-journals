@@ -1,3 +1,7 @@
+The Transideological Express (20260816)
+
+"we're in an unprecedented era of perception management" (20260816)
+
 frozen applesauce in summer (20260816)
 
 making the future exist deliberately (20260815)
