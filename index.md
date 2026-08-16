@@ -1,3 +1,5 @@
+frozen applesauce in summer (20260816)
+
 making the future exist deliberately (20260815)
 
 increasingly actionable depressing data (20260815)
