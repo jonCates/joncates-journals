@@ -1,3 +1,5 @@
+making the future exist deliberately (20260815)
+
 increasingly actionable depressing data (20260815)
 
 somedays end of days cant come soon enough (20260814)
