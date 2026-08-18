@@ -1,3 +1,9 @@
+talking to machines (20260818)
+
+🖥️🛜💻 The Art Happens Here
+Simple Net Art Diagram — MTAA (1997)
+(20260817)
+
 The Transideological Express (20260816)
 
 "we're in a very unprecedented era of perception management" (20260816)
