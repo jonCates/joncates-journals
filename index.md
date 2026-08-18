@@ -4,7 +4,7 @@ Low Summer (20260818)
 
 talking to machines (20260818)
 
-🖥️🛜💻 The Art Happens Here
+🖥️🛜💻 The Art Happens Here;
 Simple Net Art Diagram — MTAA (1997)
 (20260817)
 
