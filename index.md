@@ -1,3 +1,7 @@
+Sommerausklang (20260818)
+
+Low Summer (20260818)
+
 talking to machines (20260818)
 
 🖥️🛜💻 The Art Happens Here
