@@ -1,3 +1,5 @@
+survival, sovereignty, provenance, art, caring, and future-making (20260818)
+
 Sommerausklang (20260818)
 
 Low Summer (20260818)
