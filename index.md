@@ -1,3 +1,5 @@
+"Time, tide and trolley wait for no man." (20260820)
+
 i was working in a system that required me to narrativize myself in order to achieve tenure (20260820)
 
 we are not machines, we do not have perfect recall. our forgetting is a form of healing (20260820)
