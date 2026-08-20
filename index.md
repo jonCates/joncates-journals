@@ -1,11 +1,13 @@
+give gifts w/o attachments to outcomes (20260820)
+
 content doesnt matter
 feeling hopeless trying to create as an artist?
 technologies defn our interactions today in simply unprecedented ways
 here on 𝕏, the AI algo machine codebase called Phoenix has alrdy determined yesterday what my interactions will be today. low connections yesterday, for whatever reasons, external or internal, means the machine deprioritizes me today. the 'content' doesnt matter
 this profoundly demoralizing reality, that AI algo machine is who you are rly talking to, is familiar to sum ppl but diff to those of us from oldInternet where/when humans were connecting w humans via technologies
-(20260819)
+(20260820)
 
-extreme recency bias (20260819) 
+extreme recency bias (20260820) 
 
 geographically uneven disaster (20260819) 
 
