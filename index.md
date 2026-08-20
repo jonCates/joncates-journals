@@ -1,3 +1,7 @@
+'time heals all wounds' is the language of forgetting because memories fade as new experiences are inscribed and rewrite out pathways (20260820)
+
+run the mourning routine (20260820)
+
 give gifts w/o attachments to outcomes (20260820)
 
 content doesnt matter
