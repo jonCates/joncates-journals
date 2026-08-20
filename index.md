@@ -1,3 +1,5 @@
+we are not machines, we do not have perfect recall. our forgetting is a form of healing (20260820)
+
 'time heals all wounds' is the language of forgetting because memories fade as new experiences are inscribed and rewrite out pathways (20260820)
 
 run the mourning routine (20260820)
