@@ -1,3 +1,5 @@
+“an entire ecosystem that you wouldn’t know about unless you were born into it, or read into it” — Stephanie Harlowe (2026)
+
 as artists, we are talking to ourselves so that we can imagine the worlds we create (20260821)
 
 over on 𝕏, the artist ꒰ა ₊ sadgirl𓂃★ˊ˗ ,who makes anime-inspired Animated GIF Glitch Art which i love, said/asked:
