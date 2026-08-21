@@ -1,3 +1,30 @@
+as artists, we are talking to ourselves so that we can imagine the worlds we create (20260821)
+
+over on 𝕏, the artist ꒰ა ₊ sadgirl𓂃★ˊ˗ ,who makes anime-inspired Animated GIF Glitch Art which i love, said/asked:
+is everything enough?????????
+
+to which i replied:
+
+legit hardQuestion && hardLessons
+on the one hand yes, more than enough
+on the other, no, because we are human
+we find it hard to recognize what we alrdy have
+&& we also have our hopes/dreams/aspirations
+which inspire, motivate, and lead us into longings
+
+for us artists, the restlessness is part of the process
+while we also need to find && make our peace w
+'everything' which is in fact also more than
+'enough'
+🤍🕊️✨
+
+ive been thinking/feeling of these moments as small
+BACK TO SCHOOL
+《 glitch◆school 》 
+BACK TO BASICS➝ teaching moments to reflect on how to be an artist in this/these world/s we live in.
+which BACK TO BASICS➝ lessons would you like to explore?...
+(20260820)
+ 
 "Time, tide and trolley wait for no man." (20260820)
 
 i was working in a system that required me to narrativize myself in order to achieve tenure (20260820)
@@ -13,7 +40,7 @@ give gifts w/o attachments to outcomes (20260820)
 content doesnt matter
 feeling hopeless trying to create as an artist?
 technologies defn our interactions today in simply unprecedented ways
-here on 𝕏, the AI algo machine codebase called Phoenix has alrdy determined yesterday what my interactions will be today. low connections yesterday, for whatever reasons, external or internal, means the machine deprioritizes me today. the 'content' doesnt matter
+on 𝕏, the AI algo machine codebase called Phoenix has alrdy determined yesterday what my interactions will be today. low connections yesterday, for whatever reasons, external or internal, means the machine deprioritizes me today. the 'content' doesnt matter
 this profoundly demoralizing reality, that AI algo machine is who you are rly talking to, is familiar to sum ppl but diff to those of us from oldInternet where/when humans were connecting w humans via technologies
 (20260820)
 
