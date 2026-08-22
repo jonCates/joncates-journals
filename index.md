@@ -1,3 +1,11 @@
+1ø1
+1◆1
+1◇1
+1◈1
+(20260822)
+
+artists➝ we keep ourselves interested (20260822)
+
 late August, low Summer (20260822)
 
 “an entire ecosystem that you wouldn’t know about unless you were born into it, or read into it” — Stephanie Harlowe (2026)
