@@ -1,3 +1,5 @@
+late August, low Summer (20260822)
+
 “an entire ecosystem that you wouldn’t know about unless you were born into it, or read into it” — Stephanie Harlowe (2026)
 
 as artists, we are talking to ourselves so that we can imagine the worlds we create (20260821)
