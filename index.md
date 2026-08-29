@@ -1,3 +1,5 @@
+stackedExhaustion (20260829)
+
 people cannot afford houses in USA, more than 75% of houses are unaffordable to people (20260829)
 
 paradoxicalLucidity (20260823)
