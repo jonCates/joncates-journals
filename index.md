@@ -1,3 +1,11 @@
+New Moons
+18.5 + 18.5 = 37
+37 + 18.5 = 55.5
+55.5 + 18.5 = 74
+74 + 18.5 = 92.5 
+92.5 + 18.5 = 111 
+(20260831)
+
 "the steady aridification of the US West" (20260831)
 
 "extreme drought in the US West" (20260831)
