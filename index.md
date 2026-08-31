@@ -1,3 +1,7 @@
+"the steady aridification of the US West" (20260831)
+
+"extreme drought in the US West" (20260831)
+
 G𐐉¡┼CꜦ! / gl!┼CH't /  △ Ɍ 7 (20260829)
 
 digitalDirt — d!Ɍ+y̶—D16I十`▲LL (20260829)
