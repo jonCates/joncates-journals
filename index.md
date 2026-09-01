@@ -1,3 +1,5 @@
+a new era of simultaneous disasters (20260901)
+
 haunting media archaeology with contradictions && recurrences (20260901)
 
 seems i've survived the summer (20260901)
