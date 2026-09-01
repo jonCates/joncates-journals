@@ -1,3 +1,7 @@
+seems i've survived the summer (20260901)
+
+encode conceptualMeanings (20260901)
+
 New Moons
 1991.5 (18.5);
 2010 (37);
