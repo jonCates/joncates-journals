@@ -1,3 +1,8 @@
+on the last day of August,
+white butterfly season ended &&
+black butterfly season began. 🤍🦋🖤
+(20260902)
+
 a new era of simultaneous disasters (20260901)
 
 haunting media archaeology with contradictions && recurrences (20260901)
