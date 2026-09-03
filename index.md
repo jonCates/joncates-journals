@@ -1,3 +1,5 @@
+started watching Jericho (2026) bc it felt like a frontier cowboy Western but turns out its a soap opera about rich ppl. one of my least favorite forms of media. i will say its beautifully visual. the cinematography && staging consistently  creates stunning storytelling. — jonCates Watching Westerns Wednesday September 2nd 2026 (20260902)
+
 on the last day of August,
 white butterfly season ended &&
 black butterfly season began. 🤍🦋🖤
