@@ -1,3 +1,5 @@
+first leaves of The Fall falling (20260905)
+
 what we become after being transformed (20260904)
 
 "Text communications may be monitored and stored" (20260904)
