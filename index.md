@@ -1,3 +1,7 @@
+you have to borrow to finance your daily needs
+couldn't make the purchase 🇺🇸
+debt trap (20260910)
+
 no constitutional right to clean water
 ～realLife inn Glitch Western Americana 🇺🇸
 (20260909)
