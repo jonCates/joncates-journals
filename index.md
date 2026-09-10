@@ -1,3 +1,5 @@
+if you feel like you are in a constant survivialMode, you are. you are in a difficult season && unfortunately, a difficult perpetuating cycle that is reenforced by both externalForces && the successful survival itself (20260910)
+
 when 'working class' is described as the struggling-to-make-ends-meet precarious class, listen closely to what this msg actually is in the so-called 'K-Shaped' economy. 'working' is now poverty 🇺🇸 (20260910)
 
 "you have to borrow to finance your daily needs"
