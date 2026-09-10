@@ -1,8 +1,10 @@
-you have to borrow to finance your daily needs
-couldn't make the purchase 🇺🇸
-debt trap (20260910)
+when 'working class' is described as the struggling-to-make-ends-meet precarious class, listen closely to what this msg actually is in the so-called 'K-Shaped' economy. 'working' is now poverty 🇺🇸 (20260910)
 
-no constitutional right to clean water
+"you have to borrow to finance your daily needs"
+"couldn't make the purchase" 🇺🇸
+"debt trap" (20260910)
+
+"no constitutional right to clean water"
 ～realLife inn Glitch Western Americana 🇺🇸
 (20260909)
 
