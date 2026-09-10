@@ -1,3 +1,5 @@
+cowboyUp everyday (20260910)
+
 8:33 AM && i feel like ive alrdy been awake an entire lifetime today (20260910)
 
 if you feel like you are in a constant survivialMode, you are. you are in a difficult season && unfortunately, a difficult perpetuating cycle that is reenforced by both externalForces && the successful survival itself (20260910)
