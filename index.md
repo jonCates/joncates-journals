@@ -1,3 +1,5 @@
+living at the end of existing distribution networks (20260920)
+
 honestly, im alrdy exhausted before 8 AM (20260916)
 
 fuelRiots (20260916)
