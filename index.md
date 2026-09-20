@@ -1,3 +1,6 @@
+
+“Electricity is becoming increasingly unaffordable.” (20260920)
+
 living at the end of existing distribution networks (20260920)
 
 honestly, im alrdy exhausted before 8 AM (20260916)
