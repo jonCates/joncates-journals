@@ -1,4 +1,6 @@
 
+people are going to need to be better people at the exact time in which they're being incentivized to be worse (20260923)
+
 “Electricity is becoming increasingly unaffordable.” (20260920)
 
 living at the end of existing distribution networks (20260920)
