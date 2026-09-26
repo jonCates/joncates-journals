@@ -1,3 +1,5 @@
+"abandon the world. On March 18, 1212,"
+
 "Susanna, O Lord; for You never cease to regard with loving mercy those to whom You have granted such powerful help. Amen." (20260926)
 
 "dangerously fragile" (20260926)
