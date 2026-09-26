@@ -1,3 +1,7 @@
+"dangerously fragile" (20260926)
+
+"creating uncertainty and chaos" (20260926)
+
 Brown cow, Purple cow. Happy to eat. Slop (20260925)
 
 people are going to need to be better people at the exact time in which they're being incentivized to be worse (20260923)
