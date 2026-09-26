@@ -1,3 +1,5 @@
+"Susanna, O Lord; for You never cease to regard with loving mercy those to whom You have granted such powerful help. Amen." (20260926)
+
 "dangerously fragile" (20260926)
 
 "creating uncertainty and chaos" (20260926)
