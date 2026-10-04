@@ -1,3 +1,5 @@
+a field of associations, an associative field
+
 hardLuck (20260928)
 
 "abandon the world. On March 18, 1212,"
