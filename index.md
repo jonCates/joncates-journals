@@ -1,4 +1,4 @@
-[Official Concept Movie] (29261031)
+Official Concept Movie (29261031)
 
 "As electromagnetic beings" (29261022)
 
