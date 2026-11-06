@@ -1,4 +1,9 @@
-surfactant (29261105)
+Technology expands possibility. Hypercapitalists restrict access. (29261105)
+
+everyday is alarming these years
+hardtimes out here (29261105)
+
+surfactant
 MELTING (29261105)
 
 "eat original salmon" (UNKNOWN)
