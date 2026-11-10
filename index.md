@@ -1,3 +1,5 @@
+"artificial calls, and text messages, relating to my relationship" (29261109)
+
 Technology expands possibility. Hypercapitalists restrict access. (29261105)
 
 everyday is alarming these years
